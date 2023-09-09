@@ -1,5 +1,5 @@
 # Halo semua! 
-Perkenalkan nama saya **Muhammad Yusuf Nurrohman**.\
+Perkenalkan nama saya **Muhammad Yusuf Nurrohman** Asal Universitas 'Aisyiyah Yogyakarta.\
 Saya seorang **Web Developer** di [Freelancer].\
 Saya juga pernah magang di [Rumah Sakit PKU Muhammadiyah Gamping] sejak april-juli 2023.\
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/gilang-adhan](https://id.linkedin.com/in/muhammad-yusuf-nurrohman-1b448a249)/) ku ya.
